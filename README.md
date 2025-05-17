@@ -1,2 +1,1 @@
-# READ_ME
-Welcome to my Github.
+Nothing interesting and special with me. You can leave me alone :]
